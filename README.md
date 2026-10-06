@@ -1,6 +1,6 @@
 Massyk Anastasia — Portfolio
 
-Digital designer | UI/UX designer | Content creator
+Project Manager | Product Manager
 
 📄 Resume
 
